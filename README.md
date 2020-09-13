@@ -1,2 +1,2 @@
-# THENew
+# SIstemInfomasiPenentuanCabangBaru
 revolusi
